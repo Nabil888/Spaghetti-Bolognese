@@ -1,0 +1,16 @@
+Ingredients:
+    - 1 tablespoon of olive oil
+    - 1 brown onion, finely chopped
+    - 1 carrot, peeled, finely chopped
+    - 1 celery stick, trimmed, finely chopped
+    - 2 garlic cloves, crushed
+    - 500g of beef mince
+    - 1/3 cup of tomato paste
+    - 2 * 400g of canned diced tomatoes
+    - 1 teaspoon of oregano leaves
+    - Large pinch ground nutmeg
+    - 2 teaspoons of sweetener
+    - 1/2 cup water
+    - 500g thin spaghetti(pasta)
+    - fresh basil leaves to serve
+    - parmesan cheese, shaved, to serve

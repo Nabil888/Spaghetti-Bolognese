@@ -1,0 +1,1 @@
+Spaghetti Bolognese is a famous food which is delicious and really easy to make if you have the right ingredients. Spaghetti Bolognese originates from Italy and it became a worldwide attraction. It consists of pasta and a very rich sauce. It is served in a variety of different stores and resturants.
